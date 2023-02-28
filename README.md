@@ -1,1 +1,0 @@
-# loremercado.github.io
